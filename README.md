@@ -1,1 +1,0 @@
-# tereegaliyan.github.io
